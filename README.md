@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @pq4u, 16 years old
+- 👋 Hi, I’m @pq4u, 17 years old
 - 👀 I’m interested in motorsports
 - 🌱 I’m currently learning .NET
 - 📫 How to reach me? tesnypawel@gmail.com
